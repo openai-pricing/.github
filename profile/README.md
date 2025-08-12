@@ -1,2 +1,2 @@
-## We're on the way
+## We're on our way
 
